@@ -1,4 +1,4 @@
-![header](<img width="839" height="338" alt="шаблон тсуни(1)" src="https://github.com/user-attachments/assets/9d797a59-8a9c-4f46-8a40-1a596f30e7b1" />)
+![header](https://github.com/user-attachments/assets/3b97e794-a98c-4c5f-af45-172855f1f6d7)
 
 # [tsy 2.0 hitsounds](https://github.com/HaCkErToP-png/Merami-Skins/releases/download/skin/-.NM.tsyNya.2.0.hitsounds.osk)
 
