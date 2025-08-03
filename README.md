@@ -24,6 +24,6 @@
 
 ![bocchi2](https://github.com/user-attachments/assets/a41d16a9-b3b1-4990-8749-1edecf798953)
 
-# [tsy 2.0 granny](https://github.com/HaCkErToP-png/Merami-Skins/raw/refs/heads/main/-%20%20%20%20%20%20%20%20%20%E3%80%8ANM%E3%80%8B%20tsyNya%202.1%20bocchi.osk](https://github.com/HaCkErToP-png/tsyNya-Skins/raw/refs/heads/main/-.NM.tsyNya.2.0.GRANNY.osk)
+# [tsy 2.0 granny](https://github.com/HaCkErToP-png/tsyNya-Skins/raw/refs/heads/main/-.NM.tsyNya.2.0.GRANNY.osk)
 
 ![granny](https://github.com/user-attachments/assets/f18a13a3-592f-47e5-965a-210043b4477a)
